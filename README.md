@@ -1,2 +1,8 @@
-# TavK
-Távközlés 10b
++_+ÁŰű
+
+
++űTávközlés 10b
+
+űÁÉ_kjnbvcxyíyxfgrthuiláőŰ
+űw34
+
