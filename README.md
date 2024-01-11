@@ -1,8 +1,1 @@
-+_+ÁŰű
-
-
-+űTávközlés 10b
-
-űÁÉ_kjnbvcxyíyxfgrthuiláőŰ
-űw34
-
+PYTHON CYKA! BIM BIM BAM BAM!
